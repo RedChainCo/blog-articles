@@ -29,7 +29,7 @@ Por parte del negocio que estés montando o tengas establecido se necesitan unas
 
 ¡Mi misión es ayudarte a cumplir ese sueño! En una **PRIMERA ETAPA** necesito que respondas esas 10 preguntas que están allí arriba. Si no puedes responder todas o no lo tienes claro aún, podemos trabajar en ello.
 
-La **SEGUNDA ETAPA** que vamos a manejar es analizar esas preguntas que te he realizado y que tu me preguntes TODO lo que quieras, veas el portafolio, clientes con los que he trabajado y que resuelvas todas las dudas que puedas tener frente a mi trabajo contigo y tu negocio.
+La **SEGUNDA ETAPA** que vamos a manejar es analizar esas preguntas que te he realizado y que tú me preguntes TODO lo que quieras, veas el portafolio, clientes con los que he trabajado y que resuelvas todas las dudas que puedas tener frente a mi trabajo contigo y tu negocio.
 
 La **TERCERA y ÚLTIMA ETAPA** es cuando vamos a hablar de las estrategias que te recomendaría para implementar en tu negocio según lo que hayamos hablado con anterioridad y el costo que tiene su aplicación.
 
@@ -50,7 +50,7 @@ Mientras que piensas en ello vé nuestras redes sociales y explorar un poco de n
 
 [Twitter](https://twitter.com/RedChainCo) 
 
-[WhatsApp](https://whatsapp.com/) 
+[WhatsApp](https://wa.me/573507402009) 
 
 [Telegram](https://t.me/RedChainCo) 
 
