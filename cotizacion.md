@@ -13,7 +13,7 @@ Por parte del negocio que estés montando o tengas establecido se necesitan unas
 2. ¿Qué le voy a ofrecer a mis clientes o publico en mi página web o redes sociales?.
 3. ¿Voy a vender online o es un sitio informativo?.
 4. ¿Voy a poner un blog?.
-5. ¿Tengo el tiempo para escribir diario, semanal o mensualmente en mi blog? ¡Si NO lo tengo! ¿Quién lo va a hacer?.
+5. ¿Tengo el tiempo para escribir diario, semanal o mensualmente en mi blog? Si NO lo tengo... ¿Quién lo va a hacer?.
 6. Tengo definido ¿a quién le voy a llegar? y ¿cómo?.
 7. ¿He analizado a mi competencia en internet?.
 8. ¿He realizado un presupuesto para mi página web? ¿He cotizado en otros lugares?.
