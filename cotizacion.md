@@ -10,7 +10,7 @@ Montar una página web para negocio, vender productos, tener una tienda online o
 
 Por parte del negocio que estés montando o tengas establecido se necesitan unas cuantas cosas:
 1. Definir ¿para qué quiero montar un sistio web?.
-2. ¿Qué le voy a ofrecer a mis clietnes o publico en mi página web o redes sociales?.
+2. ¿Qué le voy a ofrecer a mis clientes o publico en mi página web o redes sociales?.
 3. ¿Voy a vender online o es un sitio informativo?.
 4. ¿Voy a poner un blog?.
 5. ¿Tengo el tiempo para escribir diario, semanal o mensualmente en mi blog? ¡Si NO lo tengo! ¿Quién lo va a hacer?.
